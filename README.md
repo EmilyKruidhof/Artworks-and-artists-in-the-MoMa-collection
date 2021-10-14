@@ -1,1 +1,1 @@
-# Artworks-and-artists-in-the-MoMa-collection
+# Artworks and artists in the MoMa collection
